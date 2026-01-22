@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **krzysztof.swietlik@icloud.com**
 
-- ⚡ Fun fact **I learn everything myself ;p**
+- ⚡ Fun fact **I learn everything on my own, I used to stream on Twitch and Kick, currently in my free time I practice tattooing myself, programming and using AI to create music ;p**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
